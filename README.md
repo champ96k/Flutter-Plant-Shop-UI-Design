@@ -13,7 +13,7 @@
 
 
 
-[ Design Credit ](https://dribbble.com/shots/6158149-Plant-Shop)
+Design Credit - [Julia Jakubiak ](https://dribbble.com/shots/6158149-Plant-Shop)
 
 
 
